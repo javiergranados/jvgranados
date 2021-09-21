@@ -1,3 +1,3 @@
 # Javier Granados
 
-## Web Developer | Husband | Father of 2 | Ocasional Rock Climbing | Tea lover | Fan of Nintendo | Fantasy books enthusiast
+## Software Engineer | Husband | Father of 3 | Climbing lover | Tea drinker | Fantasy books enthusiast | Fan of Nintendo
